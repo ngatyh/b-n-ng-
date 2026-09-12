@@ -1,2 +1,1 @@
-sleepyquadi
-gì đây 
+sleepyquadi 
